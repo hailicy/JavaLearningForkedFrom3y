@@ -1,11 +1,9 @@
 
 
-[**我帮阿里云推广服务器 买来送自己，现在最低89/年（很便宜了！），送女朋友马上过年再合适不过了，买了搭建个项目给面试官看也香，还可以熟悉技术栈，(老用户用家人账号买就好了，我用我女朋友的 ）。扫码或者点击购买**](https://www.aliyun.com/minisite/goods?userCode=pfn5xpli&share_source=copy_link)
+**保留一份3y的教程目录~**
 
 ![img](https://pic1.zhimg.com/80/v2-89648b1863fd1160a780b7bf3d01d345_hd.jpg)
 
-
-我写了一篇教程：[**搭建教程，从0开始一步一步带你搭建**](http://link.zhihu.com/?target=https%3A//mp.weixin.qq.com/s/MQqasjPs4Y-OCjQLuFj4ew)
 
 ***
 
